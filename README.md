@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Zerodeathsau
 - 👀 I’m interested in epic gaming
 - 🌱 I’m currently learning mostly DM
-- 📫 How to reach me at my discord zerodeaths#1145
+- 📫 How to reach me at my discord Greeny#0888
